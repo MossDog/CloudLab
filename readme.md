@@ -1,1 +1,1 @@
-This is a really cool readme imo
+I think it's even cooler now tbh
